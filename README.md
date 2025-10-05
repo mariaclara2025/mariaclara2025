@@ -1,7 +1,7 @@
 (obrigado por acesar meu perfil,veja alguns projetos)
 maria clara Araújo
 ​
-Você
+
 ​
 
  <div>
